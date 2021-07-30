@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Tiaaa04
+- 🌈 I use any pronoun! 
+- 🌱 I’m currently learning java
+- 💞️ I'm collaborating on a mod project with @ItalianDudes
+- 🍋 I'm a web, mc mod and game developer!
