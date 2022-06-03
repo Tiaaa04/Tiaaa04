@@ -1,5 +1,6 @@
-- 👋 Hi, I’m @Tiaaa04
-- 🌈 I use any pronoun! 
-- 🌱 I’m currently learning java
-- 💞️ I'm collaborating on a mod project with @ItalianDudes
-- 🍋 I'm a web, mc mod and game developer!
+**This is my second account!**
+- 👋 Hi, I’m @Tiaaa04, Tia Mirabel Valentina Madrigal Rrapaj Chinaglia
+- 🏳️‍⚧️ I go by They/She!
+- 🌺 I love Encanto and other things!
+- 🌱 I'm mixed Italian/Albanian!
+- 📫 How to reach me: tiachinaglia@gmail.com
